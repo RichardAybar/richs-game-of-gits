@@ -3,4 +3,4 @@ Winterfell, Warden of the North, Hand of the King, Protector of the Realm,
 Regent.  He is surely honorable and will lead a long and prosperous life.
 
 
-dude went to GA class nd was like nah fck this I'm out
+dude went to GA class and was like "this is the best day of my life bruh"
